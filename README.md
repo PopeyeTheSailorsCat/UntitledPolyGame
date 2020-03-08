@@ -1,2 +1,2 @@
 # UntitledPolyGame
-bruh
+По порядку рассчитайсь!
